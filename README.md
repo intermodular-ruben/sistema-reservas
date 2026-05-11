@@ -58,7 +58,7 @@ El objetivo del proyecto es desarrollar un sistema de reservas funcional que per
 
 ## Vídeo de defensa
 
-Pendiente de añadir.
+https://gvaedu-my.sharepoint.com/:v:/g/personal/rubviumar_alu_edu_gva_es/IQBO1HIn-aKcSps1ONwQge00AetAyayiJM802-WEYxUQO8c
 
 ---
 
